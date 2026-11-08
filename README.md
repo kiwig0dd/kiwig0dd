@@ -1,5 +1,5 @@
-## Hi there 👋
-<img width="640" height="667" alt="c82a127c5ebbe1f4773f6746afb43a69" src="https://github.com/user-attachments/assets/45893bd2-9f31-4a1e-b39e-aad5e622fded" />
+## Hi hi hi ヘ(°￢°)ノ
+<img width="200" height="200" alt="Cow" src="https://github.com/user-attachments/assets/45893bd2-9f31-4a1e-b39e-aad5e622fded" />
 <!--
 **kiwig0dd/kiwig0dd** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
